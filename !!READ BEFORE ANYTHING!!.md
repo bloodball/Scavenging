@@ -10,4 +10,4 @@ Section 2, Why?:
   I've made created this to allow recognition for other scripters who I appreciate their contribution to this community and hopefully allowing them to be recognized through me and highlighting the good scripters we still have in our community.
 
 Section 3, How can I be featured here?: 
-  The majority of these (Finishing writing later)
+  The majority of these will be found and added by me. If you want to be featured you can message me. 
